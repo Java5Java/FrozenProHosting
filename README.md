@@ -7,9 +7,9 @@ Only for the homepage until I decide to upload the forums version.
 
 ### Discord: 
 
-### Discord: 
+### Twitter: 
 
-### Discord: 
+### Website: 
 
 ## Contributing (only for Devs), (and for the beta folder)
 
